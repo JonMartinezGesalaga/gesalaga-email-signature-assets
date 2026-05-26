@@ -1,0 +1,1 @@
+# gesalaga-email-signature-assets
